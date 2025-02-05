@@ -68,10 +68,10 @@
    - Mål 900 g valnødder op og hak dem fint i foodprocessor 
 
 3.    
-- Varm en dyb pande/gryde ved høj varme, tilsæt lidt af olivenolien (af de ~180 ml, du har).  
-   - Kom **svampe/valnødde-blandingen** i panden. Steg 10-15 min., til svampene afgiver det meste af væsken.  
-   - Skru op for varmen, hæld i: **18 spsk. sojasauce** (270 ml) + **700 ml rødvin** (valgfri) + **6 spsk. (~90 ml) balsamicoeddike** + (evt. noget **paprika?**)
-   - Steg ~10 min. mere, rør så det ikke brænder på. Når væsken er kogt ind, og det er let karamelliseret, sluk for varmen.
+   - Varm en dyb pande/gryde ved høj varme, tilsæt lidt af olivenolien (af de ~180 ml, du har).   
+   - Kom **svampe/valnødde-blandingen** i panden. Steg 10-15 min., til svampene afgiver det meste af væsken.   
+   - Skru op for varmen, hæld i: **18 spsk. sojasauce** (270 ml) + **700 ml rødvin** (valgfri) + **6 spsk. (~90 ml) balsamicoeddike** + (evt. noget **paprika?**) 
+   - Steg ~10 min. mere, rør så det ikke brænder på. Når væsken er kogt ind, og det er let karamelliseret, sluk for varmen. 
 
 ---
 
