@@ -99,7 +99,7 @@
    - Lad saucen simre videre i alt ca. 15–25 min. (fra T–55 til T–75). Juster evt. med lidt vand eller grøntsagsbouillon, hvis den bliver for tyk.  
    - Smag til undervejs.
 
-6. **T–75**  
+6. 
    - Saucen er klar eller kan holdes varm ved lav varme, mens pastaen koges.
 
 7. **Oprydning**  
@@ -109,32 +109,29 @@
 
 ### Person D: Pasta-ansvarlig Og Generel Assistance
 
-1. **T–0 til T–35**  
+1. 
    - Dæk bord, andre tjanser
 
-2. **T-35 til T-60**
+2. 
    - Hjælp de andre
    - Gør store gryder og dørslag klar til pasta. 
 
-3. **T–60 til T–75**  
+3. 
    - Sæt en stor gryde (eller flere) vand over at koge, salt vandet godt.  
 
-4. **T–75 til T–85**  
+4.   
    - Kog ca. 3 kg pasta (evt. i flere omgange) efter anvisning på pakken (som regel 8–10 min. for al dente).  
    - Hæld vandet fra.
 
-5. **T–85**  
+5.  
    - Pasta er nu klar til servering.  
    - Hjælp med at anrette bolognese, tofu og courgetter.
 
-6. **Afsluttende oprydning**  
+6.   
    - Rens gryder, dørslag og flader.
 
 ---
 
 ## 3. Servering
 
-- **T–85** (cirka):  
-  - **Vegansk Bolognese** (med ristet tofu) er varm og færdig.  
-  - **Pastaen** er nykogt og drænet.  
-  - **Knuste courgetter** har hvilet 20 minutter og er klar som tilbehør.  
+
