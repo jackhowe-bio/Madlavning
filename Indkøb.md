@@ -19,7 +19,7 @@ Nu tilføjer vi **crumbled tofu**, der vendes i olie og ristes i ovn i ca. 25 mi
 
 - [ ] **Til knuste courgetter (×10)**  
 - [ ] **Courgetter**: ca. 7,5 kg (svarer til ~30 courgetter, hvis hver vejer ~250 g)  
-- [ ] **Hvidløgsfed**: 10 stk. (upillede fed)  
+- [ ] **Hvidløgshoveder**: 4 stk. (upillede fed)  
 - [ ] **Frisk timian**: ~30 kviste  
 - [ ] **Frisk mynte**: ~20 spsk. finthakket  
 - [ ] **Frisk dild**: ~15 spsk. finthakket  
